@@ -206,4 +206,4 @@ Players who enjoy:
 *"Brew. Explore. Discover."*
 
 Contact: contact@dreamrift.com  
-www.aryabodhi.com(will be changed to www.dreamriftforge.com)
+www.aryabodhi.com (will be changed to www.dreamriftforge.com)
